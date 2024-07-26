@@ -24,8 +24,7 @@
 ![image](https://github.com/user-attachments/assets/549b8253-487a-435c-b917-252a4edf060a)
 ![image](https://github.com/user-attachments/assets/69fcb5bf-5f51-47c3-b776-f5b48e898e6d)![image](https://github.com/user-attachments/assets/b3c1719b-e649-4523-a0ba-6045160d3d95)![image](https://github.com/user-attachments/assets/84f52842-1a9c-4d53-9be9-3cf3a82d821a)
 
-
-![image](https://github.com/user-attachments/assets/a542f0f3-6a4c-4eb8-aab4-148e5430042f)
+inthink thats it 
 
 
 
